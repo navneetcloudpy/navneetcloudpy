@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **navneet86.35s@live.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Python project.
+- 🔭 **I’m currently working on:** Python/Java Language.
 - 🌱 **I’m currently learning:** DSA in PYTHON
 - 👯 **I’m looking to collaborate on:** 
 - 🤔 **I’m looking for help with:** Python project
