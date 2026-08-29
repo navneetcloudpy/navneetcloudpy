@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Navneet Singh !!
-**A persuing Engineer  || Lucknow  from India**
+**A pursuing Software Engineering from Babu Banarasi Das University  || Lucknow  **
 
 Email Me 👉 ✉️ **navneet86.35s@live.com** For Collaboration/Project or Anything Else. 😊😊
 
