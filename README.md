@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Navneet Singh !!
 **A pursuing Software Engineering from Babu Banarasi Das University  || Lucknow  **
 
-Email Me 👉 ✉️ **navneet86.35s@live.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **navneet86.35s@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Python/Java Language.
 - 🌱 **I’m currently learning:** DSA in PYTHON
